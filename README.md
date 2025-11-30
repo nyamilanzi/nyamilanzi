@@ -23,10 +23,10 @@ Exploring the intersection of AI ethics and maternal health outcomes, particular
 
 ### Find me
 
-Website:www.femanalytica.org
-LinkedIn: https://www.linkedin.com/in/edith-b-milanzi-phd-39b10060/
-X/Twitter:https://scholar.google.com/citations?hl=en&user=Ky5zLhEAAAAJ
-Google Scholar: https://scholar.google.com/citations?hl=en&user=Ky5zLhEAAAAJ
+.Website:www.femanalytica.org .
+.LinkedIn: https://www.linkedin.com/in/edith-b-milanzi-phd-39b10060/ .
+.X/Twitter:https://scholar.google.com/citations?hl=en&user=Ky5zLhEAAAAJ .
+.Google Scholar: https://scholar.google.com/citations?hl=en&user=Ky5zLhEAAAAJ .
 
 ---
 
