@@ -45,5 +45,5 @@ I'm always interested in connecting with fellow data scientists, healthcare prof
 
 ---
 
-Last updated: 2025-01-27.
+Last updated: 30-11-2025.
 
